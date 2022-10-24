@@ -1,11 +1,11 @@
-- 👋 Hi, I’m @RaajWarrior
+- 👋 Hi, I’m Abhijit Lenka
 - 👀 I’m interested in Coding.
-- 🌱 I’m currently learning Coding..
+- 🌱 I’m currently learning on class 10th.
 - 💞️ I’m looking to collaborate on ( not think)
 - 📫 How to reach me 
 
   1- Discord Server link
-     https://discord.gg/pMdJseT6XP
+     
   2- My Website link
-     https://warrioroffical.blogspot.com/9
+     https://bio.link/raaj_warrior
 
